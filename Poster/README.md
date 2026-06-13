@@ -1,0 +1,1 @@
+Poster da equipe Challengers
